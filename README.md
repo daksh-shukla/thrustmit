@@ -26,3 +26,4 @@ Contact
 Daksh Shukla @daksh__s (instagram) Daksh1394@gmail.com
 
 
+https://daksh-shukla.github.io/thrustmit/
